@@ -6,7 +6,7 @@
 
 $\color{#93A8AC}{\textsf{ֺּׅ𓏽⑅ 𝗿̲𝗼̲𝘀̲𝗶̲𝗲̲ ✦ 𝗮̲𝗺̲𝘀̲𝗲̲𝗶̲𝗶̲  ⌣ ۶ৎ}}$
 
-[ ♡ ](https://distresseddamsel.straw.page/) $\color{#FFCFD2}{\textsf{ ♥ }}$ [ ✿ ](https://muse-ical.atabook.org/)
+[ ♡ ](https://distresseddamsel.straw.page/) $\color{#FFCFD2}{\textsf{ ♥ }}$ [ ✿ ](https://amseiii.atabook.org/)
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/ezgif.com-gif-maker%20(8)%20(1).gif)
 
