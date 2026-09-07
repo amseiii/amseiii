@@ -4,7 +4,7 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/cutiemewmewmagic.png)
 
-$\color{#93A8AC}{\textsf{ֺּׅ𓏽⑅ 𝗿̲𝗼̲𝘀̲𝗶̲𝗲̲ ✦ 𝗮̲𝗺̲𝘀̲𝗲̲𝗶̲𝗶̲  ⌣ ۶ৎ}}$
+$\color{#93A8AC}{\textsf{ֺּׅ𓏽⑅ 𝗿̲𝗼̲𝘀̲𝗶̲𝗲̲ ✦ 𝗮̲𝗺̲𝗲̲𝘀̲  ⌣ ۶ৎ}}$
 
 [ ♡ ](https://distresseddamsel.straw.page/) $\color{#FFCFD2}{\textsf{ ♥ }}$ [ ✿ ](https://iframes.straw.page)
 
