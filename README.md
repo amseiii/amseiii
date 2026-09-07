@@ -10,4 +10,6 @@ $\color{#93A8AC}{\textsf{ֺּׅ𓏽⑅ 𝗿̲𝗼̲𝘀̲𝗶̲𝗲̲ ✦ 𝗮̲
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/ezgif.com-gif-maker%20(8)%20(1).gif)
 
+![](https://file.garden/aRJiOL-RcxklS7T1/2026_09_07_055_Kleki.png)
+
 ![](https://file.garden/aRJiOL-RcxklS7T1/e778bb3836f4c61cd02ac597182268d477bb1207.png)
