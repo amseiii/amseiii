@@ -4,6 +4,9 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/1000_cb%3D20260317081237.png)
 
-### wip
+### $\color{#c27951}{\textsf{⸝⸝ - ̫ -` ⸝⸝˘ᵕ hׁᧉll𐐫 ı๋ꭑ͠ х𐐫ꭑ͠ı๋ ⨾ 𐐼ִꭑ͠ᧉlı๋𐐼ִ𐐼ִ .. !}}$
+
+### (˶ᵔᗜᵔ˶)ﾉﾞ ı๋ 𐐼ִꭑ͠ ᖯִı๋ɡᧉ𝗻ⅾᧉ𝗿ִ!
+
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/2026_09_27_0zp_Kleki.png)
