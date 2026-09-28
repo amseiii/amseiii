@@ -8,5 +8,7 @@
 
 ### $\color{#d1b957}{\textsf{(˶ᵔᗜᵔ˶)ﾉﾞ ı๋ 𐐼ִꭑ͠ ᖯִı๋ɡᧉ𝗻ⅾᧉ𝗿ִ!}}$
 
+### [ᜊ𐔌๑ ´  ˔  ` ꒱੭](https://xomiea.straw.page)
+
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/2026_09_27_0zp_Kleki.png)
