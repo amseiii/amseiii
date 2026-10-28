@@ -10,5 +10,6 @@
 
 ### [ᜊ𐔌๑ ´  ˔  ` ꒱੭](https://xomiea.straw.page)
 
+### to all on pt!! I am on break from pt rn, but my discord user is @gumzii.xx !
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/2026_09_27_0zp_Kleki.png)
